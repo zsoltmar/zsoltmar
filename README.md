@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @zsoltmar
 - 👀 I’m interested in all things interesting. But not just things.
-- 🌱 I’m currently learning to be a better human.
+- 🌱 I’m always learning.
 - 💞️ I’m looking to collaborate on meaningful projects.
 - 📫 How to reach me - @ me y'all
 
